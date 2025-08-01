@@ -1,6 +1,6 @@
 # ANUP C BALHARPURE
 📍 Bangalore, India  
-📧 [anupcbalharpure@gmail.com](mailto:anupcbalharpure@gmail.com) | 📞 9421784577 | [LinkedIn Profile](#) | https://aatronics.github.io/myProfile/
+📧 [anupcbalharpure@gmail.com](mailto:anupcbalharpure@gmail.com) | 📞 9421784577 | [www.linkedin.com/in/anupbalharpure](#) | https://aatronics.github.io/myProfile/
 
 ---
 
